@@ -1,0 +1,2 @@
+I always been passionate about the future and new technologies. And in my opinion, programming is a future profession. We are surrounded by devices that are designed to make human life easier or completely replace them. 
+Programming is a great profession where is much way to have solution.  There are a lot of development opportunities. Also the effects of work are very satisfying when you can see what is created by entering the code. I like that. 
